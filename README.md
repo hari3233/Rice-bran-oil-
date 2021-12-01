@@ -1,1 +1,4 @@
 # Rice-bran-oil-manufacturers-in-Kerala
+Rice Bran Oil is one of the most popular Cooking oil used in India specifically in Kerala. Being a trustworthy oil, it has got numerous health benefits. Known as the top rice bran oil manufacturer in Kerala, the brand has gained wide popularity. Even though the competition is high in the market, Pavizham has managed to secure a unique identity in the industry. Associate with purity to experience exceptional health benefits.
+
+Pavizham Oils is the top Rice bran oil Manufacturer in Kerala. Nevertheless high competition in the market, the oil stands out due to its authentic quality and production excellence. Pavizham Rice bran cooking oil is one of its kind that assures superior health advantages to its users. Switch your common food habits to healthy ones and lead a happy life thereafter.
